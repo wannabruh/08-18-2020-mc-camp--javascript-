@@ -1,2 +1,2 @@
-# 08-18-2020-mc-camp--javascript-
+# 08-18-2020-mc-camp-python lol
 wanabruhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh
